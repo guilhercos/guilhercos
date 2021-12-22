@@ -5,4 +5,4 @@
 🌱Interessado em ciência, tecnologia e sustentabilidade  
 📧Contate-me pelo e-mail: gui-costaquino@hotmail.com
 
-<img src="https://images.pexels.com/photos/2790391/pexels-photo-2790391.jpeg?auto=compress&cs=tinysrgb&dpr=1&w=500" width="460" height="250"/>
+<img src="https://www.wallpapers13.com/wp-content/uploads/2018/11/Dolomiti-Italy-Autumn-Lago-Antorno-landscape-photography-Desktop-HD-Wallpaper-For-PC-Tablet-And-Mobile-3840x2400-915x515.jpg" width="460" height="250"/>
